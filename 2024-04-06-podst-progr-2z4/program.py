@@ -1,0 +1,1 @@
+#tu bd ćwiczenia z lekcji
